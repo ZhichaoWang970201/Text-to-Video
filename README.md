@@ -38,4 +38,4 @@ https://github.com/ZhichaoWang970201/Text-to-Video/assets/50489235/dc2cd209-372b
 
 Video:
 VideoRetalking
-
+https://gtvault-my.sharepoint.com/:v:/g/personal/zwang945_gatech_edu/Ebj2wwCGhVFCgbB9QpuZZrgBk_6Adm3SqcPDzRx9NJ7PeA?e=6cYMkq
